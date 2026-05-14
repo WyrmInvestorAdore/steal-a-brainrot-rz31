@@ -1,4 +1,4 @@
-#  
+#  steal a brainrot hidden Script offers the most advanced steal a brainrot Script, with no cooldown and auto-sell. Perfect for dominating any match.
 
 
 
